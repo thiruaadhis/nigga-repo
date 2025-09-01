@@ -1,2 +1,2 @@
 # nigga-repo
-fire ass repo for real niggas
+fire ass repo for real fire ass niggas
